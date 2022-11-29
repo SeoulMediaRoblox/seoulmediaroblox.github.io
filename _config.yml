@@ -1,6 +1,6 @@
-title: "My Blogs Name"
-author: "Default Author Name"
-description: "Some short description of your blog can go here." # This will show up in places like twitter, linkedin, etc, if you share your sites url as a post.
+title: "Today"
+author: "The Today Team"
+description: "The best factual source for news." # This will show up in places like twitter, linkedin, etc, if you share your sites url as a post.
 
 # Email / Social media user names used by the minima theme:
 # All of these are optional and can be removed or commented out
@@ -12,7 +12,7 @@ github_username: "ewantest1"
 #flickr_username: username
 #instagram_username: username
 #pinterest_username: username
-#youtube_username: username
+#youtube_username: Username 
 #googleplus_username: +username
 
 #########################################################################################
