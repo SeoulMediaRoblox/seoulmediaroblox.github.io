@@ -16,4 +16,5 @@ Minister of Culture - @Funzone73
 People however have questioned if Reform UK should be treated seriously, or just as a gag - after all, it's a British party in a Korean country. Reform UK is most notably known for it's parties slogon "Brexit means Brexit", with JimmySavill4 saying in the past that he will make the ROK leave the EU. 
 
 ![image](https://user-images.githubusercontent.com/119078441/210452024-67eb1abd-4120-4878-9187-b70974de91d4.png)
+
 _Election Results_
