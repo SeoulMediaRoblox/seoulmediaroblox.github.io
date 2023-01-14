@@ -1,4 +1,4 @@
-# (Opinion) The constitution needs to change: Here's why.  
+# Opinion | The constitution needs to change: Here's why.  
 
   
 
