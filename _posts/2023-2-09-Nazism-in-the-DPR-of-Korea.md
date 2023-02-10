@@ -9,7 +9,3 @@ _A screenshot from the DPRK Discord Server._
 ![image](https://user-images.githubusercontent.com/119078441/218209954-fb2520fb-a743-4013-93a4-9720b6b28243.png)
 
 _JimmySavil4 Expressing support for the Nazi Party_
-
-https://user-images.githubusercontent.com/119078441/218210276-72ca47c8-9971-482e-b9d1-480fd11c3ff9.mp4
-
-_A video produced by the now President's DM's with Colonel Sanders._
