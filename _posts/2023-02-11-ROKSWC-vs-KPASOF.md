@@ -1,0 +1,3 @@
+## BREAKING NEWS: The Republic of Korea Army Special Warfare Command to 'scrim' against the North Korean People's Army Special Operation Force
+
+The Republic Of Korea Army Special Warfare Command (SWC) and the North Korean Korean's People's Army Special Operation Force (SOF) are to scrim against one and another on the 2th Of February, at <t:1677351600:t> (your local time). This comes after Colonel Sander's, the SOF Commanding Officer denied to Scrim the Elite SWC Forces, after President robloxruler87 DM'ed him "Scrim us loser". Colonel Sanders responded with "stop forcing me i dont want to". robloxruler87 posted an announcement to the official SWC discord server announcing the scrim. A screenshot of this announcement can be found below. 
