@@ -1,0 +1,4 @@
+## The Halls of blood
+
+Just before ROK’s first inspection of the month, soldiers from the SWC, ROKA, and ROKAF came all together to raid SirCollinHall's compound located right next to the JSA by the river, this compound was containing members of the Hall family and President of the Presidium JimmySavill. Right before our troops marched to the river where the compound was located, SirBryanHall called for all servicemen of the KPA, MoSS, and the Supreme Guard in the JSA to guard the compound feeling the threat of ROK's forces, right after RobloxRuler led our brave comrades-in-arms to the river to raid the compound. The result of the raid left many dead on both sides, many died drowning, flamethrowers, but the mission was complete leaving their compound in ruins and destroying the idea that the Halls are safe.
+
