@@ -1,0 +1,5 @@
+## The Speaker of the National Assembly resigns
+
+On Wensday, the now former Speaker of the National Assembly, Private_teddy announced his resignation, with him doing so due to _"most of the privileges that come with SONA (Speaker of the National Assembly) that are needed to run it (the National Assembly) have been taken away"._ The now former Speaker of The National Assembly also endorsed Funzone73 for the role of Speaker of The National Assembly, who currently holds onto the position of Deputy Speaker of the National Assembly. It's currently at the time unsure if another Speaker Elections will be hosted. This resignation comes at an important time, after the Deputy Speaker of the National Assembly announced that the mid-term general election will be hosted in this upcoming weekend. 
+
+The former speaker of the National Assembly faced a lot of criticism during his term, with President Ruler being one of them. The question being should of the Speaker of the NA resigned so early or not, only being one month into his term?
