@@ -6,4 +6,4 @@ His first article was a partial leak the sex offender, Jeffrey Epstein’s islan
 
 Seoul Today is yet to confirm if the source is factually correct.
 
-*Note, part of this bill has been censored by request of the Ministry of Culture, Sports and Tourism.*
+*Note, part of this Article has been censored by request of the Ministry of Culture, Sports and Tourism.*
