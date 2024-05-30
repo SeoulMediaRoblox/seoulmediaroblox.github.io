@@ -1,4 +1,4 @@
-## 15 Months Ago Today: The Race to become 7th President - Seoul Today
+# 15 Months Ago Today: The Race to become 7th President - Seoul Today
 Looking back at the archives, we see how the race to become the 7th President of the Republic of Korea was fought. This day is key as we see the run up to the next Presidential election, as Candidates begin to register their interest in running. The 7th Presidential election so candidates such as **ShogunateDeveloper**, **MartinMJB**, **thomasgames2018**, , and the current President, **robloxruler87** attempt to take the office of President of the Republic of Korea. 
 
 When we look back at the campaign, we saw how robloxruler87, an independent and thomasgames2018, the People Power Candidate took on the other 13 candidates and made it to the second round by being the two most popular candidates. 
