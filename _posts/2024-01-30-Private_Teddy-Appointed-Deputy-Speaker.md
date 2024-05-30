@@ -1,5 +1,4 @@
-# Seoul Today
-## Private_Teddy appointed Deputy Speaker
+# Private_Teddy appointed Deputy Speaker
 
 Private_Teddy, currently chairman of the United Income Party has been appointed deputy speaker by three Speaker of the National Assembly.
 
