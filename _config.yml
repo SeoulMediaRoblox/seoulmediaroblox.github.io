@@ -1,18 +1,18 @@
-title: "Seoul Today"
-author: "The Seoul Today Team"
-description: "The best factual news source in Korea. (Seoul Today is a finctional news network for SirColinHall's ROK)." # This will show up in places like twitter, linkedin, etc, if you share your sites url as a post.
+title: "Seoul Media Group"
+author: "The Seoul Media Team"
+description: "The best factual news source in Korea. (The Republic of Korea is a finctional news network for SirColinHall's ROK)." # This will show up in places like twitter, linkedin, etc, if you share your sites url as a post.
 
 # Email / Social media user names used by the minima theme:
 # All of these are optional and can be removed or commented out
 email: "rok.seoultoday@gmail.com"
-twitter_username: "@SeoulToday_RBLX"
-github_username: "@SeoulToday_RBLX"
+twitter_username: "@SeoulMediaGroup"
+#github_username: "@SeoulToday_RBLX"
 #linkedin_username: "linkedinuser"
 #facebook_username: username
 #flickr_username: username
 #instagram_username: username
 #pinterest_username: username
-youtube_username: "@seoultodayroblox7397" 
+youtube_username: "@seoulmediagroup" 
 #googleplus_username: +username
 
 #########################################################################################
